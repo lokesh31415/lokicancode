@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lokicancode
+- 👋 Hi, I’m @lokicancode ... Yup, I can code !!
 - 👀 I’m interested in ... Nothing
 - 🌱 I’m currently learning ... Nothing
 - 💞️ I’m looking to collaborate on ... Nothing
